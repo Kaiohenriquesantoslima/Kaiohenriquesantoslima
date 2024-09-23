@@ -12,7 +12,7 @@ carros 🏎
  terror 🤡
  
 ![images](https://github.com/user-attachments/assets/91bb5df8-449e-4f93-ac84-525c370744a9)
-![download](https://github.com/user-attachments/assets/1a2e923a-c9cc-412b-ba44-6f7fd45debbd)
+
 
 religiao✝️
 
